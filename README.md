@@ -2,7 +2,7 @@
 - 👀 I’m interested in programmation, development apple, web and software 
 - 🌱 I’m currently learning how to create an application for Vision OS and IOS
 - 💞️ I’m looking to collaborate on VirtualCook and PrestiBillet, a beta project of me and my team
-- 📫 How to reach me : ad.olf.hit.ler.39.45.staline@gmail.com , It's not a joke, It's polyglot
+- 📫 How to reach me : yassnem9@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I'm 3 years old, and I'm a French guy
 
